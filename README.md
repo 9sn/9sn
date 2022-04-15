@@ -6,7 +6,7 @@ Here are my socials
 
 instagram: [@zimzyy](https://instagram.com/zimzyy)
 
-telegram: [zimzylmao](https://t.me/zimzylmao)
+telegram: [bisexualism](https://t.me/bisexualism)
 
 tiktok: [@zimzy](https://tiktok.com/@zimzy)
 
