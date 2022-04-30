@@ -11,3 +11,6 @@ telegram: [bisexualism](https://t.me/bisexualism)
 tiktok: [@zimzy](https://tiktok.com/@zimzy)
 
 you can contact me via telegram, instagram, or via email: visualstudiocode@riseup.net
+
+[![Open Source](https://badges.frapsoft.com/os/v1/open-source.svg?v=103)](https://opensource.org/)
+![Profile views](https://gpvc.arturio.dev/sluggish)
