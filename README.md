@@ -10,7 +10,7 @@ telegram: [bisexualism](https://t.me/bisexualism)
 
 tiktok: [@zimzy](https://tiktok.com/@zimzy)
 
-discord: zimzy#0001
+discord: real killa zimzy#3278
 
 you can contact me via telegram, instagram, discord, or via email: visualstudiocode@riseup.net
 
