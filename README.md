@@ -2,15 +2,13 @@
 
 I'm zimzy
 
-Here are my socials
-
 instagram: [@zimzyy](https://instagram.com/zimzyy)
 
 telegram: [@bisexualism](https://t.me/bisexualism)
 
-discord: znt#5172
+twitter: [@z_imzy](https://twitter.com/z_imzy)
 
-you can contact me via telegram, instagram, discord, or via email: zimzy@riseup.net
+you can contact me via telegram, instagram, or via email: zimzy@riseup.net
 
 [![Open Source](https://badges.frapsoft.com/os/v1/open-source.svg?v=103)](https://opensource.org/)
 ![Profile views](https://gpvc.arturio.dev/sluggish)
